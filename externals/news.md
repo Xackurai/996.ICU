@@ -10,6 +10,8 @@
 
 - 新华网：[辛识平：奋斗应提倡，996当退场](http://www.xinhuanet.com/politics/2019-04/15/c_1124370790.htm)
 
+- 新华网：[996工作制：蜜糖还是“毒药”？](http://www.xinhuanet.com/fortune/2019-04/16/c_1124371189.htm)
+
 - 半月谈：[半月谈三评996：违法、过劳、伪奋斗](http://www.banyuetan.org/pl/detail/20190416/1000200033136001555374820326895304_1.html)
 
 - 半月谈：[半月谈评论：996与奋斗无关，与利益有关](http://www.banyuetan.org/dyp/detail/20190415/1000200033134991555306789054254821_1.html)
@@ -130,6 +132,8 @@
 - 德国之声：[996.ICU”——码农活命站起来](https://p.dw.com/p/3GSN5)
 
 - FT中文网：[996工作制与中国科技企业的国际化](http://www.ftchinese.com/story/001082216)
+
+- 环球时报:[“996”与“奋斗精神”，国外怎么看？](http://world.huanqiu.com/exclusive/2019-04/14736672.html?agt=15422)
 
 ## 英文媒体
 
